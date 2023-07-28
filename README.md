@@ -1,0 +1,1 @@
+En este repositorio, encontrarás una colección de mis proyectos más destacados, así como una descripción detallada de cada uno de ellos. También he incluido información sobre mí, mis habilidades y experiencia para que puedas conocerme mejor como profesional.
